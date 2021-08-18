@@ -1,4 +1,4 @@
 Integrantes 
-Natalia Mendivelso 
-Santiago Bula
+Natalia Mendivelso Grijalba 
+Santiago Bula Naranjo
 
